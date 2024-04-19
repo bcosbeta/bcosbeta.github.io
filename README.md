@@ -1,1 +1,0 @@
-# bcosbeta.github.io
